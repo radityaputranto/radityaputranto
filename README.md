@@ -7,7 +7,7 @@ I'm a frontend developer who is passionate photography and making everything is 
 
 ## Find me around the web 🌎: 
 
-- Sharing updates on  💼 [Linkedin ](https://www.linkedin.com/in/radityaputranto)
-- Designing web and app on 🎨 [Dribbble ](https://dribbble.com/raditya_putranto) , [Behance ](https://www.behance.net/radityaputranto)
-- Sharing Photographs 📸 on [Instagram ](https://www.instagram.com/raditya_putranto/), [Unsplash ](https://unsplash.com/@raditya_putranto)
-- Chit Chat on 💬 [Twitter ](https://twitter.com/radityaputranto)
+- Sharing updates on  💼 [ Linkedin ](https://www.linkedin.com/in/radityaputranto)
+- Designing web and app on 🎨 [ Dribbble ](https://dribbble.com/raditya_putranto) , [Behance ](https://www.behance.net/radityaputranto)
+- Sharing Photographs on 📸 [ Instagram ](https://www.instagram.com/raditya_putranto/), [Unsplash ](https://unsplash.com/@raditya_putranto)
+- Chit Chat on 💬 [ Twitter ](https://twitter.com/radityaputranto)
